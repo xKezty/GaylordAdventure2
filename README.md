@@ -12,3 +12,9 @@ Member
 กิตติภูมิ คเชนทร 1913210850 
 
 สรัล สีอุไรย์ 1913210546 
+
+Video Review https://www.youtube.com/watch?v=DFzda8aONFY&ab_channel=ThanansonKittisitthichai
+
+Export game https://drive.google.com/drive/folders/1azUtiWp80AZbUDpjgzz4kZPe0suukOY1?usp=sharing
+
+Fil Package unity https://drive.google.com/file/d/16pH2XZwj9Kde7OJJdiJsknksKvOXHnbL/view?usp=sharing
